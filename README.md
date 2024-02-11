@@ -1,1 +1,5 @@
-# awesome-cbd
+# Awesome CBD
+
+Online stores in France
+
+# Listing
